@@ -26,7 +26,6 @@
 	![title](https://avatars.githubusercontent.com/u/43754930?v=4)
 
 
-![title](https://avatars.githubusercontent.com/u/43754930?v=4)
 
 **列表**:
 
